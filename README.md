@@ -1,0 +1,1 @@
+# Gulhayo-amaliy-ish
